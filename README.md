@@ -29,7 +29,7 @@ I'm passionate about learning how business, technology, and innovation can come 
 - Collaborate with people who enjoy learning and creating
 
 ### 🤝 Let's Connect
-- 💼 LinkedIn: [Add your LinkedIn profile URL here]
+💼 LinkedIn: [Disha Mandiratta](https://www.linkedin.com/in/disha-mandiratta-320783228/)
 
 
 I'm always eager to learn, collaborate, and turn new ideas into meaningful projects.
